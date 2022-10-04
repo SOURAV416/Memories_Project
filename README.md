@@ -1,6 +1,6 @@
 # Memories
 
-![Memories](https://i.ibb.co/7CmVbCW/image.png)
+![Memories](C:\Users\SHIVANGINI SAHU\Videos\Captures\Memories - Google Chrome 04-10-2022 15_19_03 (3))
 
 ## Introduction
 
